@@ -14,9 +14,31 @@
 
 [![YouTube](http://i.ytimg.com/vi/deKWX3ZfbCE/hqdefault.jpg)](https://www.youtube.com/watch?v=deKWX3ZfbCE)
 
+[Q] Electromechanical Conversion Systems DC Generator DCgen 005
+
+[![YouTube](http://i.ytimg.com/vi/KJ_volB7PPk/hqdefault.jpg)](https://www.youtube.com/watch?v=KJ_volB7PPk)
+
+[Q] Electromechanical Conversion Systems DC machines [Q1]
+
+[![YouTube](http://i.ytimg.com/vi/0h0pe7TXt20/hqdefault.jpg)](https://www.youtube.com/watch?v=0h0pe7TXt20)
+
+[Q] Electromechanical Conversion Systems DC machines [Q2]
+
+[![YouTube](http://i.ytimg.com/vi/cEmclXcl6sI/hqdefault.jpg)](https://www.youtube.com/watch?v=cEmclXcl6sI)
+
 [Q] Electromechanical Conversion Systems DC machines [Q3]
 
 [![YouTube](http://i.ytimg.com/vi/hMqzEVi3yWg/hqdefault.jpg)](https://www.youtube.com/watch?v=hMqzEVi3yWg)
+
+[Q] Electromechanical Conversion Systems DC machines [Q4]
+
+[![YouTube](http://i.ytimg.com/vi/OAICXBROnx8/hqdefault.jpg)](https://www.youtube.com/watch?v=OAICXBROnx8)
+
+[Q] Electromechanical Conversion Systems DC machines  [Q9]
+
+[![YouTube](http://i.ytimg.com/vi/fHMoTSFiJe8/hqdefault.jpg)](https://www.youtube.com/watch?v=fHMoTSFiJe8)
+
+
 
 ## SECTION IN SPANISH == SECCION EN ESPANOL==
 
@@ -43,4 +65,9 @@
 [Q] Sistemas de Conversion Electromecanica Maquinas DC [Q9]
 
 [![YouTube](http://i.ytimg.com/vi/scuD8SGVpyw/hqdefault.jpg)](https://www.youtube.com/watch?v=scuD8SGVpyw)
+
+[Q] Sistemas de Conversion de Energia, Generador de Corriente Continua, DC Shunt Generator DCgen 005
+
+[![YouTube](http://i.ytimg.com/vi/zQ0DFu6mdOA/hqdefault.jpg)](https://www.youtube.com/watch?v=zQ0DFu6mdOA)
+
 
