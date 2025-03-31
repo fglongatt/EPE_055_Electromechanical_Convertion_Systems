@@ -14,6 +14,10 @@
 
 [![YouTube](http://i.ytimg.com/vi/deKWX3ZfbCE/hqdefault.jpg)](https://www.youtube.com/watch?v=deKWX3ZfbCE)
 
+[Q] Electromechanical Conversion Systems DC machines [Q3]
+
+[![YouTube](http://i.ytimg.com/vi/hMqzEVi3yWg/hqdefault.jpg)](https://www.youtube.com/watch?v=hMqzEVi3yWg)
+
 ## SECTION IN SPANISH == SECCION EN ESPANOL==
 
 [Q] Sistemas de Conversion Electromecanico: Voltaje inducido Devanado maquina DC  DC_mach_002 
@@ -27,6 +31,10 @@
 [Q] Sistemas de Conversion Electromecanica Maquinas DC [Q2]
 
 [![YouTube](http://i.ytimg.com/vi/FD7QnfHxdTE/hqdefault.jpg)](https://www.youtube.com/watch?v=FD7QnfHxdTE)
+
+[Q] Sistemas de Conversion Electromecanico DC machines [Q3]
+
+[![YouTube](http://i.ytimg.com/vi/WMG2FjCxZlY/hqdefault.jpg)](https://www.youtube.com/watch?v=WMG2FjCxZlY)
 
 [Q] Sistemas de Conversion Electromecanica Maquinas DC  [Q7] 
 
