@@ -8,7 +8,8 @@
 
 [Q] Electromechanical Conversion Systems: Single Cage Induction Motor indmot_011
 
-https://youtu.be/ByBr3PhNnOU?feature=shared
+[![YouTube](http://i.ytimg.com/vi/ByBr3PhNnOU/hqdefault.jpg)](https://www.youtube.com/watch?v=ByBr3PhNnOU)
+
 
 [Q] Induction Machine Parameter Estimation based on Laboratory Tests
 
