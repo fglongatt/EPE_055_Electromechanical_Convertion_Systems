@@ -20,6 +20,19 @@
 
 [![YouTube](http://i.ytimg.com/vi/yyUpQFDrads/hqdefault.jpg)](https://www.youtube.com/watch?v=yyUpQFDrads)
 
-Sistemas de Conversion Electromecanica Maquinas DC  [Q7] 
+[Q] Sistemas de Conversion Electromecanica Maquinas DC  [Q1]
+
+[![YouTube](http://i.ytimg.com/vi/tNhRJSEmdDM/hqdefault.jpg)](https://www.youtube.com/watch?v=tNhRJSEmdDM)
+
+[Q] Sistemas de Conversion Electromecanica Maquinas DC [Q2]
+
+[![YouTube](http://i.ytimg.com/vi/FD7QnfHxdTE/hqdefault.jpg)](https://www.youtube.com/watch?v=FD7QnfHxdTE)
+
+[Q] Sistemas de Conversion Electromecanica Maquinas DC  [Q7] 
 
 [![YouTube](http://i.ytimg.com/vi/1NUx_E-BWmU/hqdefault.jpg)](https://www.youtube.com/watch?v=1NUx_E-BWmU)
+
+[Q] Sistemas de Conversion Electromecanica Maquinas DC [Q9]
+
+[![YouTube](http://i.ytimg.com/vi/scuD8SGVpyw/hqdefault.jpg)](https://www.youtube.com/watch?v=scuD8SGVpyw)
+
