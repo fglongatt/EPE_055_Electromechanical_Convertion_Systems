@@ -14,6 +14,13 @@
 
 [![YouTube](http://i.ytimg.com/vi/BbawKKEsBho/hqdefault.jpg)](https://www.youtube.com/watch?v=BbawKKEsBho)
 
+### Electromechanical Conversion Systems  Electrical Power Loses in Magnetic Materials [Q1]
+
+[![YouTube](http://i.ytimg.com/vi/_5thKK6AeOs/hqdefault.jpg)](https://www.youtube.com/watch?v=_5thKK6AeOs)
+
+### Electromechanical Conversion Systems, Electrical Power Losses in Magnetic Materials [Q1]
+
+[![YouTube](http://i.ytimg.com/vi/ysEqX5wDYkU/hqdefault.jpg)](https://www.youtube.com/watch?v=ysEqX5wDYkU)
 
 ## *Seccion 2: Audio en Espanol*
 
@@ -28,3 +35,12 @@
 ### Sistemas de Conversion Electromecanicos Fundamentos de Materiales Magneticos Q3
 
 [![YouTube](http://i.ytimg.com/vi/IN5FzrWuTXw/hqdefault.jpg)](https://www.youtube.com/watch?v=IN5FzrWuTXw)
+
+### Sistemas de Conversion Electromecanicos Perdidas de Potencia en Materiales Magneticos Q1
+
+[![YouTube](http://i.ytimg.com/vi/xrgitioX4AA/hqdefault.jpg)](https://www.youtube.com/watch?v=xrgitioX4AA)
+
+### Sistemas de Conversion Electromecanicos de Energia, Perdidas de Potencia Electrical en Materiales
+
+[![YouTube](http://i.ytimg.com/vi/bRlgJGCjvc4/hqdefault.jpg)](https://www.youtube.com/watch?v=bRlgJGCjvc4)
+
